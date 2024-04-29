@@ -1,2 +1,0 @@
-# dhimandas
-Dr. Dhiman Das
